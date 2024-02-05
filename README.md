@@ -1,0 +1,1 @@
+# cardgallery.tales-tra.com
